@@ -2,5 +2,5 @@
 bath rice
 dosa
 puliyogare
-paste
+pasta
 tomato bath
